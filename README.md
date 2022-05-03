@@ -1,8 +1,7 @@
 # Pensamento Computacional e Lógica de Programação
 
 
-## Lista de presença aula de reforço 06/04: https://forms.gle/h3L2ZDyu4AqnwycB8
-
+## Lista de presença aula de reforço 04/05: https://forms.gle/mLLw488wd5Tz1uns6
 contato: alvaro.ferreira@idp.edu.br
 
 
