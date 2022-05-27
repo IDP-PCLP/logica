@@ -4,6 +4,7 @@
 ## Lista de presença aula de reforço 04/05: https://forms.gle/mLLw488wd5Tz1uns6
 contato: alvaro.ferreira@idp.edu.br
 
+Link para o google forms: https://forms.gle/CTdMJpRuCKfATrTq9
 
 Link para o Mentimeter: https://www.menti.com/34q2r61bpr
 
